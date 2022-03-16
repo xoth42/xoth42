@@ -1,1 +1,1 @@
-hi
+Aspiring computer security/science specialist
