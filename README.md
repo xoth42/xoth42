@@ -1,1 +1,1 @@
-Aspiring computer security/science specialist
+Computer Science and Physics student at UMass Amherst
