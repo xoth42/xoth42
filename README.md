@@ -1,3 +1,1 @@
-Computer Science and Physics student at UMass Amherst
-
-https://www-edlab.cs.umass.edu/~ipelenur/
+Computer Science and Physics - Quantum Computing focus - undergraduate at UMass Amherst
